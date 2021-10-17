@@ -7,10 +7,10 @@
 <meta http-equiv="X-UA-Compatible" content="IE=Edge">
 <meta name="google-site-verification" content="na69ZwFTSF48gWvo24EVPcEJN9EBIuJ7OEQdIZ4GY_0" />
 <meta property="og:title" content="شات الوردة الملكية | شات الوردة الملكية للجوال">
-<link rel="shortcut icon" href="https://www11.0zz0.com/2021/09/13/20/828402532.jpg">
+<link rel="shortcut icon" href="https://www14.0zz0.com/2021/10/17/22/421036109.png">
 <meta property="og:description" content="شات الوردة الملكية | شات الوردة الملكية للجوال">
 <meta property="og:image" content="prv1.png">
-<link rel="icon" type="image/x-icon" href="https://www11.0zz0.com/2021/09/13/20/828402532.jpg">
+<link rel="icon" type="image/x-icon" href="https://www14.0zz0.com/2021/10/17/22/421036109.png">
 <meta name="google" value="notranslate">
 <meta name="HandheldFriendly" content="True">
 <meta name="viewport" content=" user-scalable=0, width=device-width">
