@@ -5,6 +5,7 @@
 
 
 <meta http-equiv="X-UA-Compatible" content="IE=Edge">
+<meta name="google-site-verification" content="na69ZwFTSF48gWvo24EVPcEJN9EBIuJ7OEQdIZ4GY_0" />
 <meta property="og:title" content="شات الوردة الملكية | شات الوردة الملكية للجوال">
 <link rel="shortcut icon" href="https://www11.0zz0.com/2021/09/13/20/828402532.jpg">
 <meta property="og:description" content="شات الوردة الملكية | شات الوردة الملكية للجوال">
